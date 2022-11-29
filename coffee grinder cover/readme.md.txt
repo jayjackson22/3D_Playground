@@ -1,0 +1,1 @@
+Slotted, circular cover for coffee grinder with a lip around the edges. Possibly a second moving part to rotate and cover/expose the opening.
